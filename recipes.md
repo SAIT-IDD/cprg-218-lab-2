@@ -113,3 +113,15 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### PASTEL 3 LECHES
+
+Ingredients:
+- 1 white genoise
+- 1 can of evaporated milk
+- 1 can condensed milk
+- 1 can whole milk
+
+- Instructions
+- 1. Mix everything togheter
+  2. Enjoy accompanied with a glass of tequila
