@@ -59,7 +59,7 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
-
+- 250 G MEXICAN CHILLI PEPPERS
 Instructions:
 1. Cook spaghetti according to package instructions.
 2. In a mixing bowl, combine ground beef, bread crumbs, milk, Parmesan cheese, egg, garlic, salt, and pepper.
@@ -101,7 +101,7 @@ Ingredients:
 - 3/4 cup brown sugar
 - 2 eggs
 - 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 10 CUPS semisweet chocolate chips
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
